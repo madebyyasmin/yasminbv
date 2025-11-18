@@ -1,4 +1,4 @@
-✨ Hi, I'm Yasmin — Creative Ops ✕ Product-minded Systems Builder ✨
+   ✨ Hi, I'm Yasmin — Creative Ops ✕ Product-minded Systems Builder ✨
 
 Welcome to my corner of the internet! I turn messy, complex processes into smooth, delightful workflows. I blend creative operations, product thinking, and automation magic to help teams move faster, stay aligned, and ship beautiful work.
 
